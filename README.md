@@ -1,2 +1,2 @@
 # geminiman
-i'm great learner, willing to know everything
+i'm the great learner, willing to know everything
